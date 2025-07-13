@@ -1,144 +1,135 @@
 
 # Today's History 📜
 
-12th July 2025
+13th July 2025
 
+
+## Year - 2024
+ [President of the United States](https://wikipedia.org/wiki/President_of_the_United_States "President of the United States") [Donald Trump](https://wikipedia.org/wiki/Donald_Trump "Donald Trump") is injured in [an assassination attempt](https://wikipedia.org/wiki/Attempted_assassination_of_Donald_Trump_in_Pennsylvania "Attempted assassination of Donald Trump in Pennsylvania") while speaking at an election campaign rally near [Butler, Pennsylvania](https://wikipedia.org/wiki/Butler,_Pennsylvania "Butler, Pennsylvania").
+
+## Year - 2020
+ [After a five-day search](https://wikipedia.org/wiki/Death_of_Naya_Rivera "Death of Naya Rivera"), the body of American actress and singer [Naya Rivera](https://wikipedia.org/wiki/Naya_Rivera "Naya Rivera") is recovered from [Lake Piru](https://wikipedia.org/wiki/Lake_Piru "Lake Piru"), where she drowned in [California](https://wikipedia.org/wiki/California "California").
+
+## Year - 2016
+ [Prime Minister of the United Kingdom](https://wikipedia.org/wiki/Prime_Minister_of_the_United_Kingdom "Prime Minister of the United Kingdom") [David Cameron](https://wikipedia.org/wiki/David_Cameron "David Cameron") resigns, and is succeeded by [Theresa May](https://wikipedia.org/wiki/Theresa_May "Theresa May").
+
+## Year - 2014 - Germany wins the 2014 FIFA World Cup defeating Argentina in the final following a 1-0 win after extra time.[15]
+ Germany wins the 2014 FIFA World Cup defeating Argentina in the final following a 1-0 win after extra time.[15] - [2014](https://wikipedia.org/wiki/2014 "2014") - [Germany](https://wikipedia.org/wiki/Germany_national_football_team "Germany national football team") wins the [2014 FIFA World Cup](https://wikipedia.org/wiki/2014_FIFA_World_Cup "2014 FIFA World Cup") defeating [Argentina](https://wikipedia.org/wiki/Argentina_national_football_team "Argentina national football team") in the [final](https://wikipedia.org/wiki/2014_FIFA_World_Cup_final "2014 FIFA World Cup final") following a 1-0 win after extra time.
 
 ## Year - 2013
- Six people are killed and 200 injured in a French passenger train [derailment in Brétigny-sur-Orge](https://wikipedia.org/wiki/Br%C3%A9tigny-sur-Orge_train_crash "Brétigny-sur-Orge train crash").
+ [Typhoon Soulik](https://wikipedia.org/wiki/Typhoon_Soulik_(2013) "Typhoon Soulik (2013)") kills at least nine people and affects more than 160 million in [East China](https://wikipedia.org/wiki/East_China "East China") and [Taiwan](https://wikipedia.org/wiki/Taiwan "Taiwan").
 
-## Year - 2012
- A [tank truck explosion](https://wikipedia.org/wiki/Okogbe_tank_truck_explosion "Okogbe tank truck explosion") kills more than 100 people in [Okobie](https://wikipedia.org/wiki/Okobie "Okobie"), [Nigeria](https://wikipedia.org/wiki/Nigeria "Nigeria").
+## Year - 2011
+ [United Nations Security Council Resolution 1999](https://wikipedia.org/wiki/United_Nations_Security_Council_Resolution_1999 "United Nations Security Council Resolution 1999") is adopted, which admits [South Sudan](https://wikipedia.org/wiki/South_Sudan "South Sudan") to member status of United Nations.
 
-## Year - 2012
- [Syrian Civil War](https://wikipedia.org/wiki/Syrian_Civil_War "Syrian Civil War"): Government forces [target the homes of rebels and activists](https://wikipedia.org/wiki/Battle_of_Tremseh "Battle of Tremseh") in [Tremseh](https://wikipedia.org/wiki/Tremseh "Tremseh") and kill anywhere between 68 and 150 people.
+## Year - 2011
+ [Mumbai](https://wikipedia.org/wiki/Mumbai "Mumbai") is rocked by [three bomb blasts](https://wikipedia.org/wiki/2011_Mumbai_bombings "2011 Mumbai bombings") during the evening rush hour, killing 26 and injuring 130.
 
-## Year - 2007
- [U.S. Army](https://wikipedia.org/wiki/United_States_Army "United States Army") [Apache helicopters](https://wikipedia.org/wiki/Boeing_AH-64_Apache "Boeing AH-64 Apache") engage in [airstrikes](https://wikipedia.org/wiki/July_12,_2007,_Baghdad_airstrike "July 12, 2007, Baghdad airstrike") against armed insurgents in [Baghdad](https://wikipedia.org/wiki/Baghdad "Baghdad"), [Iraq](https://wikipedia.org/wiki/Iraq "Iraq"), where civilians are killed; footage from the cockpit is later leaked to the Internet.
+## Year - 2008
+ [Battle of Wanat](https://wikipedia.org/wiki/Battle_of_Wanat "Battle of Wanat") begins when [Taliban](https://wikipedia.org/wiki/Taliban "Taliban") and [al-Qaeda](https://wikipedia.org/wiki/Al-Qaeda "Al-Qaeda") guerrillas attack US Army and [Afghan National Army](https://wikipedia.org/wiki/Afghan_National_Army "Afghan National Army") troops in [Afghanistan](https://wikipedia.org/wiki/War_in_Afghanistan_(2001%E2%80%93present) "War in Afghanistan (2001-present)"). The U.S. deaths were, at that time, the most in a single battle since the beginning of [operations in 2001](https://wikipedia.org/wiki/Operation_Enduring_Freedom "Operation Enduring Freedom").
 
-## Year - 2006
- The [2006 Lebanon War](https://wikipedia.org/wiki/2006_Lebanon_War "2006 Lebanon War") begins.
-
-## Year - 2001
- [Space Shuttle program](https://wikipedia.org/wiki/Space_Shuttle_program "Space Shuttle program"): [Space Shuttle <i>Atlantis</i>](https://wikipedia.org/wiki/Space_Shuttle_Atlantis "Space Shuttle Atlantis") is launched on mission [STS-104](https://wikipedia.org/wiki/STS-104 "STS-104"), carrying the [<i>Quest</i> Joint Airlock](https://wikipedia.org/wiki/Quest_Joint_Airlock "Quest Joint Airlock") to the [International Space Station](https://wikipedia.org/wiki/International_Space_Station "International Space Station").
-
-## Year - 1998
- The [Ulster Volunteer Force](https://wikipedia.org/wiki/Ulster_Volunteer_Force "Ulster Volunteer Force") attacked a house in [Ballymoney](https://wikipedia.org/wiki/Ballymoney "Ballymoney"), [County Antrim](https://wikipedia.org/wiki/County_Antrim "County Antrim"), [Northern Ireland](https://wikipedia.org/wiki/Northern_Ireland "Northern Ireland") with a [petrol bomb](https://wikipedia.org/wiki/Molotov_cocktail "Molotov cocktail"), [killing the Quinn brothers](https://wikipedia.org/wiki/Quinn_brothers%27_killings "Quinn brothers' killings").
+## Year - 2003
+ French [DGSE](https://wikipedia.org/wiki/Directorate-General_for_External_Security "Directorate-General for External Security") personnel abort [an operation](https://wikipedia.org/wiki/Op%C3%A9ration_14_juillet "Opération 14 juillet") to rescue [Íngrid Betancourt](https://wikipedia.org/wiki/%C3%8Dngrid_Betancourt "Íngrid Betancourt") from [FARC](https://wikipedia.org/wiki/FARC "FARC") rebels in [Colombia](https://wikipedia.org/wiki/Colombia "Colombia"), causing a political scandal when details are leaked to the press.
 
 ## Year - 1995
- Chinese [seismologists](https://wikipedia.org/wiki/Seismologists "Seismologists") successfully [predict](https://wikipedia.org/wiki/Earthquake_prediction "Earthquake prediction") the [1995 Myanmar-China earthquake](https://wikipedia.org/wiki/1995_Myanmar%E2%80%93China_earthquake "1995 Myanmar-China earthquake"), reducing the number of casualties to 11.
+ [Space Shuttle <i>Discovery</i>](https://wikipedia.org/wiki/Space_Shuttle_Discovery "Space Shuttle Discovery") is launched on [STS-70](https://wikipedia.org/wiki/STS-70 "STS-70") to deploy the [TDRS-7](https://wikipedia.org/wiki/TDRS-7 "TDRS-7") satellite.
 
-## Year - 1979
- The island nation of [Kiribati](https://wikipedia.org/wiki/Kiribati "Kiribati") becomes independent from the United Kingdom.
+## Year - 1990
+ [Lenin Peak disaster](https://wikipedia.org/wiki/Lenin_Peak_disaster "Lenin Peak disaster"): a 6.4-magnitude earthquake in Afghanistan triggers an [avalanche](https://wikipedia.org/wiki/Avalanche "Avalanche") on Lenin Peak, killing 43 climbers in the deadliest mountaineering disaster in history.
 
-## Year - 1975
- [São Tomé and Príncipe](https://wikipedia.org/wiki/S%C3%A3o_Tom%C3%A9_and_Pr%C3%ADncipe "São Tomé and Príncipe") declare independence from Portugal.
+## Year - 1985
+ [Vice President](https://wikipedia.org/wiki/Vice_President_of_the_United_States "Vice President of the United States") [George H. W. Bush](https://wikipedia.org/wiki/George_H._W._Bush "George H. W. Bush") becomes the [Acting President for the day](https://wikipedia.org/wiki/Acting_President_of_the_United_States "Acting President of the United States") when President [Ronald Reagan](https://wikipedia.org/wiki/Ronald_Reagan "Ronald Reagan") undergoes surgery to remove [polyps](https://wikipedia.org/wiki/Polyp_(medicine) "Polyp (medicine)") from his [colon](https://wikipedia.org/wiki/Colon_(anatomy) "Colon (anatomy)").
+
+## Year - 1985
+ The [Live Aid](https://wikipedia.org/wiki/Live_Aid "Live Aid") [benefit concert](https://wikipedia.org/wiki/Benefit_concert "Benefit concert") takes place in [London](https://wikipedia.org/wiki/London "London") and [Philadelphia](https://wikipedia.org/wiki/Philadelphia "Philadelphia"), as well as other venues such as [Moscow](https://wikipedia.org/wiki/Moscow "Moscow") and [Sydney](https://wikipedia.org/wiki/Sydney "Sydney").
+
+## Year - 1977
+ New York City: Amidst a period of [financial and social turmoil](https://wikipedia.org/wiki/History_of_New_York_City_(1946%E2%80%931977)#1970s "History of New York City (1946-1977)") experiences an [electrical blackout](https://wikipedia.org/wiki/New_York_City_blackout_of_1977 "New York City blackout of 1977") lasting nearly 24 hours that leads to widespread fires and looting.
+
+## Year - 1977
+ [Somalia](https://wikipedia.org/wiki/Somalia "Somalia") declares war on [Ethiopia](https://wikipedia.org/wiki/Ethiopia "Ethiopia"), starting the [Ogaden War](https://wikipedia.org/wiki/Ogaden_War "Ogaden War").
 
 ## Year - 1973
- A [fire](https://wikipedia.org/wiki/National_Personnel_Records_Center_fire "National Personnel Records Center fire") destroys the entire sixth floor of the [National Personnel Records Center](https://wikipedia.org/wiki/National_Personnel_Records_Center "National Personnel Records Center") of the United States.
+ [Watergate scandal](https://wikipedia.org/wiki/Watergate_scandal "Watergate scandal"): [Alexander Butterfield](https://wikipedia.org/wiki/Alexander_Butterfield "Alexander Butterfield") reveals the existence of a secret [Oval Office taping system](https://wikipedia.org/wiki/Nixon_White_House_tapes "Nixon White House tapes") to investigators for the [Senate Watergate Committee](https://wikipedia.org/wiki/United_States_Senate_Watergate_Committee "United States Senate Watergate Committee").
 
-## Year - 1971
- The [Australian Aboriginal flag](https://wikipedia.org/wiki/Australian_Aboriginal_flag "Australian Aboriginal flag") is flown for the first time.
+## Year - 1962
+ In an unprecedented action, British Prime Minister [Harold Macmillan](https://wikipedia.org/wiki/Harold_Macmillan "Harold Macmillan") [dismisses seven members of his Cabinet](https://wikipedia.org/wiki/Night_of_the_Long_Knives_(1962) "Night of the Long Knives (1962)"), marking the effective end of the [National Liberals](https://wikipedia.org/wiki/National_Liberal_Party_(UK,_1931) "National Liberal Party (UK, 1931)") as a distinct force within British politics.
 
-## Year - 1967
- [Riots](https://wikipedia.org/wiki/1967_Newark_riots "1967 Newark riots") begin in [Newark, New Jersey](https://wikipedia.org/wiki/Newark,_New_Jersey "Newark, New Jersey").
+## Year - 1956
+ The [Dartmouth workshop](https://wikipedia.org/wiki/Dartmouth_workshop "Dartmouth workshop") is the first conference on [artificial intelligence](https://wikipedia.org/wiki/Artificial_intelligence "Artificial intelligence").
 
-## Year - 1963
- Pauline Reade, 16, disappears in [Gorton](https://wikipedia.org/wiki/Gorton "Gorton"), England, the first victim in the [Moors murders](https://wikipedia.org/wiki/Moors_murders "Moors murders").
+## Year - 1951
+ [Vuoristorata](https://wikipedia.org/wiki/Vuoristorata "Vuoristorata"), one of the oldest still-operating wooden roller coasters in Europe, is opened at the [Linnanmäki amusement park](https://wikipedia.org/wiki/Linnanm%C3%A4ki "Linnanmäki") in [Helsinki, Finland](https://wikipedia.org/wiki/Helsinki "Helsinki").
 
-## Year - 1961
- [ČSA Flight 511](https://wikipedia.org/wiki/%C4%8CSA_Flight_511_(July_1961) "ČSA Flight 511 (July 1961)") crashes at [Casablanca-Anfa Airport](https://wikipedia.org/wiki/Casablanca%E2%80%93Anfa_Airport "Casablanca-Anfa Airport") in [Morocco](https://wikipedia.org/wiki/Morocco "Morocco"), killing 72.
+## Year - 1941
+ [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): [Montenegrins](https://wikipedia.org/wiki/Montenegro "Montenegro") begin the <i>[Trinaestojulski ustanak](https://wikipedia.org/wiki/Uprising_in_Montenegro_(1941) "Uprising in Montenegro (1941)")</i> (Thirteenth of July Uprising), a popular revolt against the [Axis powers](https://wikipedia.org/wiki/Axis_powers "Axis powers").
 
-## Year - 1961
- [Indian](https://wikipedia.org/wiki/India "India") city [Pune](https://wikipedia.org/wiki/Pune "Pune") floods due to failure of the [Khadakwasla](https://wikipedia.org/wiki/Khadakwasla_Dam "Khadakwasla Dam") and [Panshet](https://wikipedia.org/wiki/Panshet_Dam "Panshet Dam") dams, killing at least two thousand people.
+## Year - 1930
+ The [inaugural](https://wikipedia.org/wiki/1930_FIFA_World_Cup "1930 FIFA World Cup") [FIFA World Cup](https://wikipedia.org/wiki/FIFA_World_Cup "FIFA World Cup") begins in Uruguay.
 
-## Year - 1960
- [Orlyonok](https://wikipedia.org/wiki/Orlyonok "Orlyonok"), the main [Young Pioneer camp](https://wikipedia.org/wiki/Young_Pioneer_camp "Young Pioneer camp") of the [Russian SFSR](https://wikipedia.org/wiki/Russian_Soviet_Federative_Socialist_Republic "Russian Soviet Federative Socialist Republic"), is founded.
-
-## Year - 1948
- Israeli Prime Minister [David Ben-Gurion](https://wikipedia.org/wiki/David_Ben-Gurion "David Ben-Gurion") orders the [expulsion of Palestinians](https://wikipedia.org/wiki/1948_Palestinian_expulsion_from_Lydda_and_Ramle "1948 Palestinian expulsion from Lydda and Ramle") from the towns of [Lod](https://wikipedia.org/wiki/Lod "Lod") and [Ramla](https://wikipedia.org/wiki/Ramla "Ramla").
-
-## Year - 1943
- [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): [Battle of Kursk](https://wikipedia.org/wiki/Battle_of_Kursk "Battle of Kursk"): [German](https://wikipedia.org/wiki/Nazi_Germany "Nazi Germany") and [Soviet](https://wikipedia.org/wiki/Soviet_Union "Soviet Union") forces engage in the [Battle of Prokhorovka](https://wikipedia.org/wiki/Battle_of_Prokhorovka "Battle of Prokhorovka"), one of the largest armored engagements of all time.
-
-## Year - 1920
- The [Soviet-Lithuanian Peace Treaty](https://wikipedia.org/wiki/Soviet%E2%80%93Lithuanian_Peace_Treaty "Soviet-Lithuanian Peace Treaty") is signed, by which [Soviet Russia](https://wikipedia.org/wiki/Russian_Soviet_Federative_Socialist_Republic "Russian Soviet Federative Socialist Republic") recognizes the independence of [Lithuania](https://wikipedia.org/wiki/Lithuania "Lithuania").
-
-## Year - 1918
- The [Imperial Japanese Navy](https://wikipedia.org/wiki/Imperial_Japanese_Navy "Imperial Japanese Navy") battleship <i>[Kawachi](https://wikipedia.org/wiki/Japanese_battleship_Kawachi "Japanese battleship Kawachi")</i> blows up at [Shunan](https://wikipedia.org/wiki/Yamaguchi_Prefecture "Yamaguchi Prefecture"), western [Honshu](https://wikipedia.org/wiki/Honshu "Honshu"), Japan, killing at least 621.
-
-## Year - 1917
- The [Bisbee Deportation](https://wikipedia.org/wiki/Bisbee_Deportation "Bisbee Deportation") occurs as [vigilantes](https://wikipedia.org/wiki/Vigilante "Vigilante") [kidnap](https://wikipedia.org/wiki/Kidnapping "Kidnapping") and [deport](https://wikipedia.org/wiki/Deportation "Deportation") nearly 1,300 [striking](https://wikipedia.org/wiki/Strike_action "Strike action") miners and others from [Bisbee, Arizona](https://wikipedia.org/wiki/Bisbee,_Arizona "Bisbee, Arizona").
+## Year - 1919
+ The British [airship](https://wikipedia.org/wiki/Airship "Airship") [R34](https://wikipedia.org/wiki/R34_(airship) "R34 (airship)") lands in [Norfolk](https://wikipedia.org/wiki/Norfolk "Norfolk"), England, completing the first airship return journey across the [Atlantic](https://wikipedia.org/wiki/Atlantic_Ocean "Atlantic Ocean") in 182 hours of flight.
 
 ## Year - 1913
- The [Second Revolution](https://wikipedia.org/wiki/Second_Revolution_(Republic_of_China) "Second Revolution (Republic of China)") breaks out against the [Beiyang government](https://wikipedia.org/wiki/Beiyang_government "Beiyang government"), as [Li Liejun](https://wikipedia.org/wiki/Li_Liejun "Li Liejun") proclaims [Jiangxi](https://wikipedia.org/wiki/Jiangxi "Jiangxi") independent from the [Republic of China](https://wikipedia.org/wiki/Republic_of_China_(1912%E2%80%931949) "Republic of China (1912-1949)").
+ The [1913 Romanian Army cholera outbreak](https://wikipedia.org/wiki/1913_Romanian_Army_cholera_outbreak "1913 Romanian Army cholera outbreak") during the [Second Balkan War](https://wikipedia.org/wiki/Second_Balkan_War "Second Balkan War") starts.
 
-## Year - 1913
- [Serbian](https://wikipedia.org/wiki/Kingdom_of_Serbia "Kingdom of Serbia") forces begin their [siege](https://wikipedia.org/wiki/Siege_of_Vidin_(1913) "Siege of Vidin (1913)") of the [Bulgarian](https://wikipedia.org/wiki/Kingdom_of_Bulgaria "Kingdom of Bulgaria") city of [Vidin](https://wikipedia.org/wiki/Vidin "Vidin"); the siege is later called off when the war ends.
+## Year - 1878
+ [Treaty of Berlin](https://wikipedia.org/wiki/Treaty_of_Berlin_(1878) "Treaty of Berlin (1878)"): The European powers redraw the map of the Balkans. [Serbia](https://wikipedia.org/wiki/Serbia "Serbia"), [Montenegro](https://wikipedia.org/wiki/Montenegro "Montenegro") and [Romania](https://wikipedia.org/wiki/Romania "Romania") become completely independent of the [Ottoman Empire](https://wikipedia.org/wiki/Ottoman_Empire "Ottoman Empire").
 
-## Year - 1862
- The [Medal of Honor](https://wikipedia.org/wiki/Medal_of_Honor "Medal of Honor") is authorized by the [United States Congress](https://wikipedia.org/wiki/United_States_Congress "United States Congress").
+## Year - 1863
+ [American Civil War](https://wikipedia.org/wiki/American_Civil_War "American Civil War"): The [New York City draft riots](https://wikipedia.org/wiki/New_York_City_draft_riots "New York City draft riots") begin three days of rioting which will later be regarded as the worst in United States history.
 
-## Year - 1812
- The American [Army of the Northwest](https://wikipedia.org/wiki/Army_of_the_Northwest_(United_States) "Army of the Northwest (United States)") briefly occupies the [Upper Canadian](https://wikipedia.org/wiki/Upper_Canada "Upper Canada") settlement at what is now at [Windsor, Ontario](https://wikipedia.org/wiki/Windsor,_Ontario "Windsor, Ontario").
+## Year - 1854
+ In the Battle of Guaymas, Mexico, General [José María Yáñez](https://wikipedia.org/wiki/Jos%C3%A9_Mar%C3%ADa_Y%C3%A1%C3%B1ez "José María Yáñez") stops the French invasion led by Count [Gaston de Raousset-Boulbon](https://wikipedia.org/wiki/Gaston_de_Raousset-Boulbon "Gaston de Raousset-Boulbon").
 
-## Year - 1806
- At the insistence of Napoleon, [Bavaria](https://wikipedia.org/wiki/Bavaria "Bavaria"), [Baden](https://wikipedia.org/wiki/Baden "Baden"), [Württemberg](https://wikipedia.org/wiki/W%C3%BCrttemberg "Württemberg") and thirteen minor principalities leave the [Holy Roman Empire](https://wikipedia.org/wiki/Holy_Roman_Empire "Holy Roman Empire") and form the [Confederation of the Rhine](https://wikipedia.org/wiki/Confederation_of_the_Rhine "Confederation of the Rhine").
+## Year - 1849
+ The [Charleston Workhouse Slave Rebellion](https://wikipedia.org/wiki/Charleston_Workhouse_Slave_Rebellion "Charleston Workhouse Slave Rebellion") began in [Charleston, South Carolina](https://wikipedia.org/wiki/Charleston,_South_Carolina "Charleston, South Carolina"), United States.
 
-## Year - 1801
- British ships inflict heavy damage on Spanish and French ships in the [Second Battle of Algeciras](https://wikipedia.org/wiki/Second_Battle_of_Algeciras "Second Battle of Algeciras").
+## Year - 1831
+ <i>[Regulamentul Organic](https://wikipedia.org/wiki/Regulamentul_Organic "Regulamentul Organic")</i>, a quasi-constitutional [organic law](https://wikipedia.org/wiki/Organic_law "Organic law") is adopted in [Wallachia](https://wikipedia.org/wiki/Wallachia "Wallachia"), one of the two [Danubian Principalities](https://wikipedia.org/wiki/Danubian_Principalities "Danubian Principalities") that were to become the basis of [Romania](https://wikipedia.org/wiki/Romania "Romania").
 
-## Year - 1799
- [Ranjit Singh](https://wikipedia.org/wiki/Ranjit_Singh "Ranjit Singh") conquers Lahore and becomes Maharaja of the Punjab ([Sikh Empire](https://wikipedia.org/wiki/Sikh_Empire "Sikh Empire")).
+## Year - 1830
+ The General Assembly's Institution, now the [Scottish Church College](https://wikipedia.org/wiki/Scottish_Church_College "Scottish Church College"), one of the pioneering institutions that ushered the [Bengali Renaissance](https://wikipedia.org/wiki/Bengali_Renaissance "Bengali Renaissance"), is founded by [Alexander Duff](https://wikipedia.org/wiki/Alexander_Duff_(missionary) "Alexander Duff (missionary)") and Raja [Ram Mohan Roy](https://wikipedia.org/wiki/Ram_Mohan_Roy "Ram Mohan Roy"), in [Calcutta](https://wikipedia.org/wiki/Kolkata "Kolkata"), India.
 
-## Year - 1790
- The [Civil Constitution of the Clergy](https://wikipedia.org/wiki/Civil_Constitution_of_the_Clergy "Civil Constitution of the Clergy") is passed in France by the [National Constituent Assembly](https://wikipedia.org/wiki/National_Constituent_Assembly_(France) "National Constituent Assembly (France)").
+## Year - 1814
+ The [Carabinieri](https://wikipedia.org/wiki/Carabinieri "Carabinieri"), the national [gendarmerie](https://wikipedia.org/wiki/Gendarmerie "Gendarmerie") of Italy, is established.
 
-## Year - 1789
- In response to the dismissal of the French finance minister [Jacques Necker](https://wikipedia.org/wiki/Jacques_Necker "Jacques Necker"), the radical journalist [Camille Desmoulins](https://wikipedia.org/wiki/Camille_Desmoulins "Camille Desmoulins") gives a speech which results in the [storming of the Bastille](https://wikipedia.org/wiki/Storming_of_the_Bastille "Storming of the Bastille") two days later.
+## Year - 1794
+ The [Battle of Trippstadt](https://wikipedia.org/wiki/Battle_of_Trippstadt "Battle of Trippstadt") between French forces and those of [Prussia](https://wikipedia.org/wiki/Prussia "Prussia") and Austria begins.
 
-## Year - 1776
- Captain [James Cook](https://wikipedia.org/wiki/James_Cook "James Cook") begins his [third voyage](https://wikipedia.org/wiki/Third_voyage_of_James_Cook "Third voyage of James Cook").
+## Year - 1793
+ Journalist and French revolutionary [Jean-Paul Marat](https://wikipedia.org/wiki/Jean-Paul_Marat "Jean-Paul Marat") is assassinated in his bathtub by [Charlotte Corday](https://wikipedia.org/wiki/Charlotte_Corday "Charlotte Corday"), a member of the opposing political faction.
 
-## Year - 1691
- [Battle of Aughrim](https://wikipedia.org/wiki/Battle_of_Aughrim "Battle of Aughrim") ([Julian calendar](https://wikipedia.org/wiki/Julian_calendar "Julian calendar")): The decisive victory of [William III of England](https://wikipedia.org/wiki/William_III_of_England "William III of England")'s forces in Ireland.
+## Year - 1787
+ The [Congress of the Confederation](https://wikipedia.org/wiki/Congress_of_the_Confederation "Congress of the Confederation") enacts the [Northwest Ordinance](https://wikipedia.org/wiki/Northwest_Ordinance "Northwest Ordinance") establishing governing rules for the [Northwest Territory](https://wikipedia.org/wiki/Northwest_Territory "Northwest Territory"). It also establishes procedures for the admission of new states and limits the expansion of [slavery](https://wikipedia.org/wiki/Slavery_in_the_United_States "Slavery in the United States").
 
-## Year - 1580
- The [Ostrog Bible](https://wikipedia.org/wiki/Ostrog_Bible "Ostrog Bible"), one of the early printed [Bibles](https://wikipedia.org/wiki/Bible "Bible") in a [Slavic language](https://wikipedia.org/wiki/Slavic_languages "Slavic languages"), is published.
+## Year - 1690
+ [Nine Years' War](https://wikipedia.org/wiki/Nine_Years%27_War "Nine Years' War"): French naval forces led by [Anne Hilarion de Tourville](https://wikipedia.org/wiki/Anne_Hilarion_de_Tourville "Anne Hilarion de Tourville") fresh from their [victory at Beachy Head](https://wikipedia.org/wiki/Battle_of_Beachy_Head_(1690) "Battle of Beachy Head (1690)") sail West and [launch a raid](https://wikipedia.org/wiki/Raid_on_Teignmouth "Raid on Teignmouth") on the small English town of Teignmouth leaving it devastated.
 
-## Year - 1576
- [Mughal Empire](https://wikipedia.org/wiki/Mughal_Empire "Mughal Empire") annexes [Bengal](https://wikipedia.org/wiki/Bengal "Bengal") after defeating the [Bengal Sultanate](https://wikipedia.org/wiki/Bengal_Sultanate "Bengal Sultanate") at the [Battle of Rajmahal](https://wikipedia.org/wiki/Battle_of_Rajmahal "Battle of Rajmahal").
+## Year - 1643
+ [English Civil War](https://wikipedia.org/wiki/English_Civil_War "English Civil War"): [Battle of Roundway Down](https://wikipedia.org/wiki/Battle_of_Roundway_Down "Battle of Roundway Down"): In England, [Henry Wilmot, 1st Earl of Rochester](https://wikipedia.org/wiki/Henry_Wilmot,_1st_Earl_of_Rochester "Henry Wilmot, 1st Earl of Rochester"), commanding the [Royalist](https://wikipedia.org/wiki/Cavalier "Cavalier") forces, heavily defeats the [Parliamentarian](https://wikipedia.org/wiki/Roundhead "Roundhead") forces led by Sir [William Waller](https://wikipedia.org/wiki/William_Waller "William Waller").
 
-## Year - 1562
- Fray [Diego de Landa](https://wikipedia.org/wiki/Diego_de_Landa "Diego de Landa"), acting [Bishop of Yucatán](https://wikipedia.org/wiki/Roman_Catholic_Archdiocese_of_Yucat%C3%A1n "Roman Catholic Archdiocese of Yucatán"), burns the sacred idols and books of the [Maya](https://wikipedia.org/wiki/Maya_civilization "Maya civilization").
+## Year - 1586
+ [Anglo-Spanish War](https://wikipedia.org/wiki/Anglo%E2%80%93Spanish_War_(1585) "Anglo-Spanish War (1585)"): A convoy of English ships from the [Levant Company](https://wikipedia.org/wiki/Levant_Company "Levant Company") manage to [repel a fleet](https://wikipedia.org/wiki/Battle_of_Pantelleria_(1586) "Battle of Pantelleria (1586)") of eleven Spanish and [Maltese](https://wikipedia.org/wiki/History_of_Malta_under_the_Order_of_Saint_John "History of Malta under the Order of Saint John") galleys off the Mediterranean island of [Pantelleria](https://wikipedia.org/wiki/Pantelleria "Pantelleria").
 
-## Year - 1543
- King [Henry VIII of England](https://wikipedia.org/wiki/Henry_VIII_of_England "Henry VIII of England") marries his sixth and last wife, [Catherine Parr](https://wikipedia.org/wiki/Catherine_Parr "Catherine Parr"), at [Hampton Court Palace](https://wikipedia.org/wiki/Hampton_Court_Palace "Hampton Court Palace").
+## Year - 1573
+ [Eighty Years' War](https://wikipedia.org/wiki/Eighty_Years%27_War "Eighty Years' War"): The [Siege of Haarlem](https://wikipedia.org/wiki/Siege_of_Haarlem "Siege of Haarlem") ends after seven months.
 
-## Year - 1527
- [Lê Cung Hoàng](https://wikipedia.org/wiki/L%C3%AA_Cung_Ho%C3%A0ng "Lê Cung Hoàng") ceded the throne to [Mạc Đăng Dung](https://wikipedia.org/wiki/M%E1%BA%A1c_%C4%90%C4%83ng_Dung "Mạc Đăng Dung"), ending the [Lê dynasty](https://wikipedia.org/wiki/L%C3%AA_dynasty "Lê dynasty") and starting the [Mạc dynasty](https://wikipedia.org/wiki/M%E1%BA%A1c_dynasty "Mạc dynasty").
+## Year - 1558
+ [Battle of Gravelines](https://wikipedia.org/wiki/Battle_of_Gravelines_(1558) "Battle of Gravelines (1558)"): In France, Spanish forces led by Count [Lamoral of Egmont](https://wikipedia.org/wiki/Lamoral,_Count_of_Egmont "Lamoral, Count of Egmont") defeat the French forces of Marshal [Paul de Thermes](https://wikipedia.org/wiki/Paul_de_Thermes "Paul de Thermes") at [Gravelines](https://wikipedia.org/wiki/Gravelines "Gravelines").
 
-## Year - 1493
- [Hartmann Schedel](https://wikipedia.org/wiki/Hartmann_Schedel "Hartmann Schedel")'s <i>[Nuremberg Chronicle](https://wikipedia.org/wiki/Nuremberg_Chronicle "Nuremberg Chronicle")</i>, one of the best-documented early printed books, is published.
+## Year - 1402
+ [Nanjing](https://wikipedia.org/wiki/Nanjing "Nanjing") surrenders to [Zhu Di](https://wikipedia.org/wiki/Zhu_Di "Zhu Di") without a fight, ending the [Jingnan campaign](https://wikipedia.org/wiki/Jingnan_campaign "Jingnan campaign"). The [Jianwen Emperor](https://wikipedia.org/wiki/Jianwen_Emperor "Jianwen Emperor") disappears and his family is incarcerated.
 
-## Year - 1488
- [Joseon Dynasty](https://wikipedia.org/wiki/Joseon_Dynasty "Joseon Dynasty") official [Choe Bu](https://wikipedia.org/wiki/Choe_Bu "Choe Bu") returned to Korea after months of shipwrecked travel in China.
+## Year - 1260
+ The [Livonian Order](https://wikipedia.org/wiki/Livonian_Order "Livonian Order") suffers its greatest defeat in the 13th century in the [Battle of Durbe](https://wikipedia.org/wiki/Battle_of_Durbe "Battle of Durbe") against the [Grand Duchy of Lithuania](https://wikipedia.org/wiki/Grand_Duchy_of_Lithuania "Grand Duchy of Lithuania")
 
-## Year - 1470
- The [Ottomans](https://wikipedia.org/wiki/Ottoman_Empire "Ottoman Empire") [capture Euboea](https://wikipedia.org/wiki/Siege_of_Negroponte_(1470) "Siege of Negroponte (1470)").
+## Year - 1249
+ [Coronation](https://wikipedia.org/wiki/Coronation "Coronation") of [Alexander III](https://wikipedia.org/wiki/Alexander_III_of_Scotland "Alexander III of Scotland") as [King of Scots](https://wikipedia.org/wiki/Kingdom_of_Scotland "Kingdom of Scotland").
 
-## Year - 1335
- Pope [Benedict XII](https://wikipedia.org/wiki/Pope_Benedict_XII "Pope Benedict XII") issues the papal bull [Fulgens sicut stella matutina](https://wikipedia.org/wiki/Fulgens_sicut_stella_matutina "Fulgens sicut stella matutina") to reform the [Cistercian Order](https://wikipedia.org/wiki/Cistercians "Cistercians").
-
-## Year - 1191
- [Third Crusade](https://wikipedia.org/wiki/Third_Crusade "Third Crusade"): [Saladin](https://wikipedia.org/wiki/Saladin "Saladin")'s garrison surrenders to [Philip Augustus](https://wikipedia.org/wiki/Philip_II_of_France "Philip II of France"), ending the two-year [siege of Acre](https://wikipedia.org/wiki/Siege_of_Acre_(1189%E2%80%9391) "Siege of Acre (1189-91)").
-
-## Year - 927
-King [Constantine II of Scotland](https://wikipedia.org/wiki/Constantine_II_of_Scotland "Constantine II of Scotland"), King [Hywel Dda](https://wikipedia.org/wiki/Hywel_Dda "Hywel Dda") of [Deheubarth](https://wikipedia.org/wiki/Deheubarth "Deheubarth"), [Ealdred of Bamburgh](https://wikipedia.org/wiki/Ealdred_I_of_Bamburgh "Ealdred I of Bamburgh") and [King Owain of the Cumbrians](https://wikipedia.org/wiki/Owain_ap_Dyfnwal_(fl._934) "Owain ap Dyfnwal (fl. 934)") accepted the overlordship of King [Æthelstan](https://wikipedia.org/wiki/%C3%86thelstan "Æthelstan") of England, leading to seven years of peace in the north.
-
-## Year - 70
-he armies of [Titus](https://wikipedia.org/wiki/Titus "Titus") attack the walls of [Jerusalem](https://wikipedia.org/wiki/Jerusalem "Jerusalem") after [a six-month siege](https://wikipedia.org/wiki/Siege_of_Jerusalem_(AD_70) "Siege of Jerusalem (AD 70)"). Three days later they [breach the walls](https://wikipedia.org/wiki/17th_of_Tammuz "17th of Tammuz"), which enables the army to [destroy](https://wikipedia.org/wiki/Tisha_B%27Av "Tisha B'Av") the [Second Temple](https://wikipedia.org/wiki/Second_Temple "Second Temple").
+## Year - 1174
+ [William I of Scotland](https://wikipedia.org/wiki/William_the_Lion "William the Lion"), a key [rebel](https://wikipedia.org/wiki/Rebellion "Rebellion") in the [Revolt of 1173-74](https://wikipedia.org/wiki/Revolt_of_1173%E2%80%9374 "Revolt of 1173-74"), is captured at [Alnwick](https://wikipedia.org/wiki/Alnwick "Alnwick") by forces loyal to [Henry II of England](https://wikipedia.org/wiki/Henry_II_of_England "Henry II of England").
 
 <br />
 
-> _Last Updated: 7/12/2025, 3:41:35 AM (in GMT)_
+> _Last Updated: 7/13/2025, 4:17:47 AM (in GMT)_
