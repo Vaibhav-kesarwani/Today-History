@@ -129,4 +129,4 @@ King [Otto II](https://wikipedia.org/wiki/Otto_II "Otto II") and his Frankish ar
 
 <br />
 
-> _Last Updated: 14/7/2025, 9:43:04 am (IST)_
+> _Last Updated: 14/7/2025, 8:14:10 pm (IST)_
