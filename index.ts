@@ -39,7 +39,7 @@ const formattedDate = `${day}${daySuffix} ${currentDate.toLocaleString('default'
 
 async function updateREADME(historyData: any) {
   const events = historyData.data.Events;
-  const timestamp = new Date().toLocaleString();
+  const timestamp = new Date().toLocaleString("en-IN", { timeZone: "Asia/Kolkata" });
 
   let content = `
 # Today's History 📜
@@ -59,7 +59,7 @@ ${renderedEvent.substring(6)}
   content += `
 <br />
 
-> _Last Updated: ${timestamp} (in GMT)_
+> _Last Updated: ${timestamp} (IST)_
 `;
 
   writeFileSync("README.md", content);
