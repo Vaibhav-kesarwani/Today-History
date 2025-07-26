@@ -225,4 +225,4 @@ Rout of an alliance of Christian troops from [Navarre](https://wikipedia.org/wik
 
 <br />
 
-> _Last Updated: 26/7/2025, 9:38:22 am (IST)_
+> _Last Updated: 26/7/2025, 8:10:41 pm (IST)_
