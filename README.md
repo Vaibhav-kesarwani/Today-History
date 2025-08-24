@@ -225,4 +225,4 @@ The [Graffito of Esmet-Akhom](https://wikipedia.org/wiki/Graffito_of_Esmet-Akhom
 
 <br />
 
-> _Last Updated: 24/8/2025, 9:28:25 am (IST)_
+> _Last Updated: 24/8/2025, 8:06:34 pm (IST)_
